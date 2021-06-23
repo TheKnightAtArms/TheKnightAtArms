@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheKnightAtArms
+- 👋 Hi, I’m Lakota Russell
 - 👀 I’m interested in Customer Support or System Support Roles
 - 🌱 I’m just finished my degree in IT, specializing in Customer support.
 - 📫 You can reach me via:
